@@ -22,7 +22,7 @@
 ## Instructions
 
 1. Cut the avocado in half, remove the pit, and scoop the flesh into a bowl.
-3. Mash with a fork until smooth or leave slightly chunky, according to preference.
+3. Mash with a fork until smooth or leave slightly chunky, according to preference if you wish.
 4. Taste and adjust lime juice or salt as needed.
 5. Serve immediately.
 
